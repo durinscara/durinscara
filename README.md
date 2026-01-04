@@ -16,13 +16,13 @@ please dont copy my ponies, light inspiration is fine !! unless i specifically t
 
 <img src=https://i.postimg.cc/qq3ZzQcf/Untitled201-20251029085208.png height="70">
 
-<img src=https://i.postimg.cc/65d4hRzF/Untitled202-20251029090439.png height="15"> i am a proshipper. i darkship aswell. i am a durin(genshin) yumeshipper and nonsharing. yes its romantic. i yume matthias czernin(idv), flower(vocaloid) and luka+hyuna(alnst) as well, for these i am 100% sharing. i do not need tonetags, please lmk if you do need them and ill try to use them on you whenever i can
+<img src=https://i.postimg.cc/65d4hRzF/Untitled202-20251029090439.png height="15"> i am a proshipper. i darkship aswell. i am a durin(genshin) yumeshipper and nonsharing. yes its romantic. i yume matthias czernin(idv), flower(vocaloid), luka+hyuna(alnst) and gourdy(dw) as well, for these i am 100% sharing. i do not need tonetags, please lmk if you do need them and ill try to use them on you whenever i can
 
 i do not consider myself to have a dni. i block if i dont like you. that being said, i do not like anyone who demonizes narcissistic personality disorder, or any cluster b disorders for that matter. 
 
 <img src=https://i.postimg.cc/C5BNLNyP/Untitled203-20251029094618.png height="70">
 
-i am fixtated on genshin impact and bungo stray dogs currently, im more likely to talk about them! i also like kny, idv, mha, omori and alnst. i like more, but this is all i feel like listing LOL
+i am fixtated on genshin impact, bungo stray dogs and dandys world currently, im more likely to talk about them! i also like kny, idv, mha, omori and alnst. i like more, but this is all i feel like listing LOL
 
 my favorite ships are durinscara, dazaku, dazatsu, mattlouis, hyuluka, and doushino. very durinscara&dazakupilled right now ^_^
 
