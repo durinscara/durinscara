@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=durinscara&color=D1585A)
 
 
-hi! call me ryuno or kurage ^_^ i use it/its pronouns, i am autistic and dont identify with any gender. i'm also a fictkin
+hi! call me kurage ^_^ i use it/its pronouns, i am autistic and dont identify with any gender. i'm also a fictkin
 
 i am afk 90% of the time, so please whisper and ill reply if i see it in time!! i do not purposely ignore whispers unless they are about party limits. i will not help with these, sorry. 
 
